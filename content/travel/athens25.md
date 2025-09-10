@@ -1,17 +1,24 @@
 ---
 title: "Athens 25"
-date: 2024-06-20 14:00:00 +0000
+date: 2025-10-09 14:00:00 +0000
 categories: ["Travel"]
 tags: ["Athens", "Greece", "Travel"]
 ---
 
+Yamas! This is a travelogue of my trip to Athens, Greece on 4th of September 2025 to 6th of September 2025. I went with my sister, and our main purpose of this visit was to cover archaeological sites and museums. I now reminisce the trip and type down my experiences here:
+
+## Day 0 - Landing in Athens
+So, after taking a half-day from office, I packed my bag with essentials - clothes, chargers, passport and all - and took my train to Stansted Airport. Luckily, the route to the airport is a direct train from Cambridge South train station, so took me around 20 minutes to get there. Our flight was at 3:30pm and I had reached at like 12:30noon.
+However, due to severe delays and tube-strike in London, my sister took ages to come. So I had to kill time in the airport departure area with some coffee, music and checking-out other people :'(.
+
+After this very uneventful wait, my sister arrived by around 2pm, and we went to check-in and get our boarding passes. It was a Ryanair flight, so it was something I did not factor in - check-in :'(. I (and my sister) did not check-in and we had to pay 55£ extra for getting the boarding pass. Yeah - Ryanair sure knows how to milk money from you :(. Lesson learnt - always check-in online 24 hours before the flight!
+
+And then the flight was delayed by 1 hour, before we finally boarded the plane and reached Athens at around 00:00 midnight. Total flight time is 3h 55m - but with the additonal delay of 1h in the plane and my long waiting in the airport - another 4 hours and I am sure, I would've beaten the time it takes me to fly to Mumbai from London. Of course, doing my research - all nearby takeaways to our Airbnb were closed, so we had to settle for some airport food. My sister and I bought a Mediterranean sandwich each (had some olive paste, which was insanely good. No feta cheese btw). We also got some Lays Oregano crisps from the little airport cafe and next to our Airbnb was this late night shop selling all kind of drinks and crisps (along with vape, tobacco, etc.). Our Airbnb was located in Plaka, and the streets were littered with quite a few of these shops. Of course, a bunch of teenagers and (homeless) looking men and women were around such shops, chilling after probably a late night party session xD. A pic of how our food looked is below!
+
+And with this all we both finally crashed in our Airbnb, which was a lovely place in Plaka and drifter off to sleep, ending our long trip to Athens from Stansted!
+
 ## Day 1 - Acropolis and Acropolis museum
-
-We first got up at around 8:30 or so - had the lil coffee AirBnb had prepared us. Cannot go wrong with a classic coffee espresso capsules! Though the amazing thing about all this is our AirBnb was very well done up! To give some context -
-this is how it looked
-
-
-So we pushed for Plaka main square, came across this really nice looking church!
+We got up at around 8:30 or so - and I discovered how nicely the Airbnb was done up! They gave us some coffee capsules (and the espresso machine ofc) which looked pretty cheap - but the coffee tasted wayy better than the usual Nespresso capsules I get in the UK :D (no joke!). We had our coffee and then headed out to explore Plaka, the main square of Athens. On our way, we came across this really nice looking church!
 
 https://maps.app.goo.gl/Bc14KTybBr1BwW9B9?g_st=ipc
 [https://maps.app.goo.gl/Bc14KTybBr1BwW9B9?g_st=ipc]
@@ -21,10 +28,9 @@ grabbed a pastry from here, it was called Babka
 https://maps.app.goo.gl/PeKGyPr6hVyUFm6p6?g_st=ipc
 [https://maps.app.goo.gl/PeKGyPr6hVyUFm6p6?g_st=ipc]
 
-<iframe src="https://maps.app.goo.gl/Bc14KTybBr1BwW9B9?g_st=ipc" width="100" frameborder="0" style="border:0"></iframe>
 <p float="left">
-  <iframe src="https://maps.app.goo.gl/Bc14KTybBr1BwW9B9?g_st=ipc" width="100" frameborder="0" style="border:0"></iframe>
-  <iframe src="https://maps.app.goo.gl/PeKGyPr6hVyUFm6p6?g_st=ipc" width="100" frameborder="0" style="border:0"></iframe>
+<iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d3145.0751365736046!2d23.729847499999998!3d37.975375799999995!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x14a1bd3d044dcde7%3A0x89da7c340968d932!2sHoly%20Metropolitan%20Church%20of%20the%20Annunciation%20to%20the%20Virgin%20Mary!5e0!3m2!1sen!2suk!4v1757519802100!5m2!1sen!2suk" width="300" height="450" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
+    <iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d3145.1023664663808!2d23.7296362!3d37.9747403!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x14a1bda92bd10075%3A0x98d189c15856155e!2sThe%20Zillers%20Pastry%20Bar!5e0!3m2!1sen!2suk!4v1757519845915!5m2!1sen!2suk" width="300" height="450" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
 </p>
 
 

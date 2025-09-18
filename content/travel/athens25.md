@@ -32,77 +32,67 @@ https://maps.app.goo.gl/66kKio9re8hRgeQF9?g_st=ipc
 [https://maps.app.goo.gl/66kKio9re8hRgeQF9?g_st=ipc]
 
 
-Also the view of Acropolis and Lycabettus hill from here was pretty nice! After spending some time clicking pics and admiring the view, we walked down to the Plaka area again, to do some shopping (sister was forcing me too :P). While at it, we walked inside Montrasiki flea market area - had a shit load of touristy stuff and curious. They were pretty pricey! And the 1 thing that being in India has taught me is to spot the appropriately priced markets - versus the ones stealing. This was definitely daylight robbery xD.
+Also the view of Acropolis and Lycabettus hill from here was pretty scenic! After spending some time clicking pics and admiring the view, we walked down to the Plaka area again, to do some shopping (sister was forcing me too :P). While at it, we walked inside Montrasiki flea market area - had a shit load of touristy stuff and curious. They were pretty pricey! And the 1 thing that being in India has taught me is to spot the appropriately priced markets - versus the ones stealing. This was definitely daylight robbery xD.
 We also walked a bit north to find the meat market
 
 https://maps.app.goo.gl/hP3wN9K1TYFKhis19?g_st=ipc
 [https://maps.app.goo.gl/hP3wN9K1TYFKhis19?g_st=ipc]
 
-The flea market there seemed pretty decent - around there. We also bought some olives and olive oil from one of the flea shops there - not much of a difference in quality between them all so any works. We were starving and decided to to
-pitstop in some local shit ass cafe
+Starving as we were, we decided to get a quick brunch at a local cafe which didn't have any good reviews (we didn't know!).
 
 https://maps.app.goo.gl/fXgrju8qMv1wfuGw8?g_st=ipc
 [https://maps.app.goo.gl/fXgrju8qMv1wfuGw8?g_st=ipc]
 
-We had Fredichinno (the chocolatey drink), frappe (thick Greek coffee like), spinach pie and Mediterranean sandwich. It was pretty decent
-
-Once full we walked by Haidans library, which looked pretty broken imo
+We had Fredichinno (the chocolatey drink), Frappe (thick Greek coffee like), spinach pie and another Mediterranean sandwich. The sandwich was different one from the one we grabbed from the airport as this had feta cheese. But the sandwich was mid, I'll be honest compared to pie we had! We walked by Haidans library, which looked pretty broken imo. Not worth a visit, but you can imagine how it looked in its prime (a few pillars were standing as shown in the pic below).
 
 https://maps.app.goo.gl/fLxnd6ZTBq1sQCMT8?g_st=ipc
 [https://maps.app.goo.gl/fLxnd6ZTBq1sQCMT8?g_st=ipc]
 
-Though the houses around looked great.
+Sister on the way decided to buy some lovely tote bags of Greece we saw on the way. Being the weirdo she is - she went for the back-carry bag instead. I got a fridge magnet which said Pythagoras (lol) and the headed to Acropolis.
 
-Sis decided to buy some lovely tote bags of Greece she saw on the way, so she got a back-carry bag instead. Her usual pattern lol. I got a fridge magnet and the headed to Acropolis
+Once we reached the Acropolis site (yes we had to climb a bit again), we managed to get in pretty quickly. Here, you were sort of free to roam around the site, with a lot of signboards explaining the history of each monument. The only problem was it hot, like roasting hot. After clicking some pics, we decided to go through the northern entrance, which looked like the way in. We walked into the Propylaea to see  the old temple Athena, Parthenon and Erechtheion. The Parthenon had massive cranes and scaffolding around it, as it was being restored. The temple of Athena was pretty much in ruins, with only a few pillars standing. The Erechtheion was in a better state, with the famous Caryatids a famous group of six female figures that serve as columns, supporting the roof of the temple's south porch. There was also observation platform with a massive Greece flag from which you could see the whole of Athens. Strange to imagine that this whole area was once a dense forest, and now it is a sprawling city! Acropolis was the citadel of ancient Athens, and the Parthenon was built in 447 BC. It was dedicated to the goddess Athena, whom the people of Athens considered their patroness and was said to have many springs and beautiful statues. You can feel the history and the glory of ancient Greece here, no question about that.
 
-That place was hot af, saw Athens old monument. Walked into Propylae, and saw the Patenron which was under construction lol. Saw old temple of Athens too, which surprisingly was pretty fucked. Luckily erechition was still great. Also did the walk to the observation deck
-
-Then way down, sister threw fit. But the northern slope - remained a place I could not go . But looks nothing I missed.
-
-all fun stuff is in the south slope.
+Then way down, sister threw fit and we could not see the northern slope which is a little way off when you coming down. But looks nothing I had missed. And that was Acropolis for you!
+The tickets also covered the southern slopes, but we didn't know about it until after the trip to the museum :(. That slope did have some really interesting stuff, but again you cannot go in - just see them from the outside. So we just walked down to the Plaka area again, and this time we went to a shop selling leather sandals.
 
 We bought slippers for sister the long sandals worn by women in Greece. The shop was somewhere in Plaaka. Though they only had 2 colours black and silver. If you went more inside - they were more shops with more colours, but oh well - you get what suits you first!
 
-We then went to Acropolis museum. Very nice audio guide. A lotta carvings, freezes and wall carvings were taken out and extracted. Persians fucked uo the Greek pretty bad, followed by other countries invaders like Turkey and all. Beautiful sculptures lost all their metal, jewels because of greed lol.
+After chugging in a couple of bottles of waters (it was so hot that day), we headed to the Acropolis museum. The museum is located a bit south of the Acropolis site, and you can see the Parthenon from the museum's top floor cafe. The museum is pretty modern, with a lot of glass and open spaces. The museum has a lot of artefacts from the Acropolis site, including sculptures, pottery, and other items. The highlight of the museum is the Parthenon gallery, which has a lot of sculptures from the Parthenon temple. The museum also has a lot of interactive displays, which are pretty cool.
 
-Some of the underground floor site was amazing. The whole village was dug uo and studied. Middle class there seemed to have a lotta perks.
+The audio guide is pretty good, and is interactive (and free!) - they have a QR code you can scan to get the guide on your phone. In the whole museum, the following were the highlights for me:
+- First Floor:
+    - Hekatompedon: Herakles wrestling Triton and nameless three-bodied daemon
+    - Euthydikos Kore: which is like the most well-preserved kore statue I've ever seen. Looks very pretty too
+    - The calf-bearer: Moschophoros, which didn't look that impressive. It is pretty famous in symbolism though because of the man carrying a goat as a sacrifice to Athena on the Acropolis.
+    - Stele with decree for an alliance between Athens-Arcadia-Achaia-Elis and Phleious
+    - The Magic sphere: comes from the theatre of Dionysos but has the sun God (Helios) etched on it (plus some other strange etchings). It is said to have magical properties, and is said to bring good luck to those who possess it.
+- Second Floor:
+    - The Parthenon Gallery: which has a lot of sculptures from the Parthenon temple. The highlight of the gallery is the frieze, which is a long band of sculptures that runs around the top of the Parthenon temple. The frieze depicts the Panathenaic procession, which was a festival held in honour of Athena.
+    - The Caryatids: one of the six statues that supported the roof of the Erechtheion temple: You could actually see the braided hair which was folded in such a way that it could support the weight of whatever the ladies were carrying. Also one of the surprising things is that one of the six is actually housed in the British museum (the Eligin marbles controversy). It's like the say: The sun never sets on the British empire cause God doesn't trust the British in the dark xD.
+Persians destroyed a lot of the sculptures and temples in Athens, and the Parthenon was no exception. The Parthenon was converted into a church, then a mosque, and finally a gunpowder magazine. In 1687, the Parthenon was hit by a cannonball fired by the Venetians, which caused a massive explosion that destroyed a lot of the sculptures and the roof of the temple. The British took a lot of the sculptures from the Parthenon in the early 19th century, and they are now housed in the British museum. The Greeks have been trying to get them back for a long time, but the British refuse to give them back :(.
 
-We finally ended up for dinner in
+There was this also this underground floor which had a lot of ruins of houses and streets from the ancient Athens (along with some of their daily artifacts). It was pretty impressive to see how the ancient Athenians lived! I think middle-class there had a lot of perks, like running water and all.
+
+With the long tour of the museum done, we were pretty hungry. So we initially decided to go to the Psaras tarven, which had some really good reviews from redditors. But on the way we stumbled upon this lovely restaurant which had a very long queue (and it was only 7:00pm!). So we decided to give it a try, the wait was around 20 minutes - but my God the food was heavenly. A quick note to future travellers - the meal for two actually means a meal for two.
 
 https://maps.app.goo.gl/QLBxJ44dfzavujJw6?g_st=ipc
 [https://maps.app.goo.gl/QLBxJ44dfzavujJw6?g_st=ipc]
 
-Ordered a meal + lamb( couldn’t finish)
-
-Was pretty good food
-
-
-
-
+Ordered a meal for two and some lamb chops which we couldn’t finish :(. Like I said - Greeks eat a lot! With all this then we decided to walk back to our Airbnb, and crashed for the day. It was a long day, but a very fulfilling one!
 
 ## Day 2 - National Archaeological Museum
 
-Lemon ice tea different
+So we started off the day with some chips for breakfast (Ikr :'() and the lamb chops we got packes from last night's dinner. Had a bit and decided to head first to the National Archaeological Museum. The museum is located a bit north of the city centre, and you can take the metro to get there. On the way we got some packaged lemon ice tea from a nearby shop. Is it me only or their Ice tea seems different too? No sugar in them, just lemon and water (with some hint of sugar). I loved it, but my sister found it too sour :P.
 
-Metro we took
-
-Very clean and neat, yet so slow service
-
-graffitid train lol pretty cool. Seemed like one of the trains you see from the
-movies.
-
-Reached the r museum, seems very urbanised imo
+We took the metro from Montrasiki to Victoria station, and then walked to the museum. Metros here do look pretty scary at first - due to their graffiti exterior and their service is really slow. But they generally looked clean - yes much cleaner than the London underground.
 
 
+The museum is pretty big, and has a lot of artefacts from ancient Greece. The highlight of the museum is the collection of Mycenaean artefacts, which are some of the oldest artefacts in Greece. The museum also has a lot of pottery, sculptures, and other items from ancient Greece. There is an audio guide available here too, but it is very crap imo (compared to the Acropolis museum). Like there is no story to tell for any of the artefacts, just some random facts xD.
+Highlights of the museum for me were:
 
-
-MYCENAEAN
-
-Mask of agromennen
-
-Beautiful knives decoration along with a lot of stuff in gold
-
-Wall paintings depicting their goddess lady
+- Mycenaean
+    - Mask of agromennen
+    - Beautiful knives decorated handles and blades along with a lot of weapons in gold
 
 Mycenaean citadel - Acropolis? Lions gate
 

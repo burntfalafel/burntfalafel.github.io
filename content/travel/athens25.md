@@ -90,109 +90,55 @@ We took the metro from Montrasiki to Victoria station, and then walked to the mu
 The museum is pretty big, and has a lot of artefacts from ancient Greece. The highlight of the museum is the collection of Mycenaean artefacts, which are some of the oldest artefacts in Greece. The museum also has a lot of pottery, sculptures, and other items from ancient Greece. There is an audio guide available here too, but it is very crap imo (compared to the Acropolis museum). Like there is no story to tell for any of the artefacts, just some random facts xD.
 Highlights of the museum for me were:
 
-- Mycenaean
-    - Mask of agromennen
+- Mycenaean period
+    - Mask of Agromennen
     - Beautiful knives decorated handles and blades along with a lot of weapons in gold
-
-Mycenaean citadel - Acropolis? Lions gate
-
-Tirryns, cyclopean walls - Homer to call it well walled in the Illiad
-
-Tablets from palace of Pylos
-
-Egypt was trading partner cauz of Mycenaean pottery
-
-Gold lillies could be the origin of heart symbol?
-
-Sealstones, faience
-
-Attica
-
-They came up with new sword types because of fires, earthquakes and all
-
-Ivory was imported
+    - Mycenaean citadel - which is now an archaeological site in the city ruins of Mycenae. They have this main entrance called the "Lion Gate". The gate is named after the relief sculpture of two lions that stands above the entrance. The gate was built in the 13th century BC, and is one of the most well-preserved examples of Mycenaean architecture.
+        - Also the site if you visit, you can still see the Cyclopean walls and the Tiryns site. The museum just had some models of these sites.
+        - Homer called it well walled in the Illiad
+    - Tablets from palace of Pylos - which is a site in the southwestern part of Greece. The palace was built in the 13th century BC, and was one of the largest palaces in Mycenaean Greece. The tablets are written in Linear B, which is an ancient script used by the Mycenaeans. The tablets contain information about the administration of the palace, including lists of goods and people.
+    - They're some really nice gold lillies which like the heard cupid shape. Maybe this is where it originated from?
+    - Ivory was imported for a neighbouring civilisation - the Hittites (I think)
+    - They invented some sort of new sword type - kopis and machaira - Ancient writers said their heavy, curved design could cut through tough materials (sometimes linked to disasters, fires or divine punishment)
 
 
+- Cyclades period
+    - Cycladic figurines - some playing harps and flutes during the 2300BC.
+    - Frescos from Akrotiri - which is a site on the island of Santorini. The site was buried by a volcanic eruption in the 16th century BC, and was preserved under layers of ash. The frescoes depict scenes from daily life, including fishing, farming, and religious ceremonies.
+    - Some really nice frying pans with the base having some interesting geometric patterns.
+    - Obsidian was found in the island of Melos, a black volcanic strone exclusive on this island in the Aegean Sea
 
+- Daelic period: 8th century BC
+    - Koros and Kore statues are throughout the museum for this
+    - Grave stelai more like grave cornerstones tall which have. A sphinx on th top. I think called Grave stele
+    -`Temple of aphaia at aegina contains battles of Troy’s with Athena 2nd Trojan war
 
-CYCLADES
+- Classical period: 5th-4th century BC
+    - Bronze statue of Zeus: a life-size bronze statue of Zeus or Poseidon, whose smile is counterbalancing the motion of his body as he prepares to hurl something lost in time.
+    - Contains pottery of the Trojan war selection
+    - Votive relief found in Eleusis
+    - The parapegma- star calendar For zodiac signs
+    - The antikythera mechanism - was the highlight for me. It was found in a shipwreck off the coast of the Greek island of Antikythera. The mechanism is a complex system of gears and dials that was used to predict astronomical events, such as eclipses and the positions of the planets. It is considered to be one of the most advanced technological devices of the ancient world.
 
-Harps and flute playing during the 2300BC is crazy.
+> A lot of these artifacts was found in random places. Fisherman got some treasure in 1900, Athens water board 1964 found while digging for plumbing
 
-Flying fish pairing was beautiful - fresco fragment
+There also was not much on the civilisation Crete.
 
-Beautiful frying pans
+We then trudged our way to the Ancient Agora, which required us to take the metro and then walk a bit. Here, we saw the Temple of Hephaestus, which is one of the best-preserved ancient Greek temples. The temple was built in the 5th century BC, and is dedicated to Hephaestus, the god of fire and metalworking. The temple is located on a hill overlooking the Agora, and has a lot of nice views of Athens. Also saw the a lot of buildings in ruins, like the Stoa of Attalos, which was a covered walkway that was used for shopping and socialising. The Agora was the centre of ancient Athens, and was the place where people would gather to discuss politics, philosophy, and other topics. This was razed by the Persians in 480 BC, and was rebuilt in the 5th century BC. After which it was used until the 6th century AD, when it was abandoned.
+Romans then came and built their own structures here, like the Odeon of Agrippa, which was a theatre that was used for musical performances and other events. The Odeon was built in the 1st century BC, and was one of the largest theatres in ancient Athens. This was also destroyed in an earthquake in the 3rd century AD, and was never rebuilt.
 
-Obsidian was found in the island of Melos, a black volcanic strone exclusive on this island in the Aegean Sea
+You can actually see a lot of the ruins from the Roman period, like the Tower of the Winds, which is an octagonal tower that was used as a clock and a weather vane. The tower was built in the 2nd century BC, and is one of the best-preserved examples of ancient Greek architecture. I however couldn't go inside.  I also saw the Church of the Holy Apostles, which is a Byzantine church that was built in the 10th century AD.
 
-
-DAEDELIC
-
-8th century BC
-
-Korai statues is kind of a statuary type of statue
-
-. They were some beautiful ones in Acropolis museum too 1st floor
-
-Kouros is male, kore is female
-
-Grave stelai more like grave cornerstones tall which have. A sphinx on th top. I
-think called Grave stele
-
-Temple of aphaia at aegina contains battles of Troy’s with Athena 2nd Trojan war
-
-
-
-
-EUROPOS
-
-Nice drachma
-
-
-
-
-
-
-CLASSICAL PERIOD
-
-counterbalancing motion with a smile
-
-bronze statue of Zeus
-
-Contains pottery of Trojan war selection
-
-Votive relief found in eleusis
-
-The parapegma- star calendar For zodiac signs
-
-The antikythera mechanism - 150bc
-
-
-
-Fisherman got some treasure in 1900, Athens water board 1964
-
-
-
-Not much on the civilisation Crete.
-
-Furniture was produced by using modern day artists plaster into hollows left by
-disintegrated ovjextsn
-
-
-
-
-
-
-EVENING
-
-Sycophant
+By this time however, both sister and me were exhausted. So we decided to head for a quick drink and snack at a nearby resturant. Sycophant was the name of the place - where I had Freddo Cappuccino (my favourite drink, third time having it in Greece btw). We had this some with fries and relaxed to enjoy the evening breeze. For the dinner-dinner, we just grabbed a takeaway from a nearby place called Falafellas and had it in our AirBnb. It was super good.
 
 ## Day 3 - National gardens and poor attempt in the beach
 
-Went to the national gardens. Saw a lotta parrots and some birds locked in cages. Saw the guards Saw stadium
+Went to the national gardens. Saw a lotta parrots and some birds locked in cages :(. While there we saw the guards in front of the parliament building. Seemed pretty serious about the whole thing.
+We also saw the stadium of Panathenaic, which is the only stadium in the world built entirely of marble. The stadium was built in the 4th century BC, and was used for the Panathenaic Games, which were held in honour of Athena. The stadium is located on a hill overlooking the city, and has a lot of nice views of Athens. We just saw this from outside as it didn't warrant a visit in this heat :'(.
 
-Saw the massive pillars from bus
+Here, my sister decided to split ways - where she continues to shop in Plaka and I go see the beach. I took the bus to the beach, which took around 40 minutes. The beach area is pretty toursity - and you have to have your swimming trunks otheriwse no point (I didn't have them lol). Before this we had our lunch at a place called <FORGOT> where I soulavi and my sister had a gyros. Both were pretty mid imo. Maybe it was order which sucked.
 
-Went to the beach
+After this we roamed around Plaka a bit, before he headed for dinner at Atlantikos - which is a very popular seafood restaurant in Plaka with very good prices.
 
-Dinner - atlantikos
+
+And that summarises our trip to Athens. Overall, it was a very fulfilling trip, and I would definitely recommend it to anyone who is interested in history and archaeology. The food is amazing, and the weather can be a little hot. I would definitely go back to Athens again!

@@ -2,7 +2,7 @@
 title: "Athens 25"
 date: 2025-10-09 14:00:00 +0000
 categories: ["Travel"]
-tags: ["Athens", "Greece", "Travel"]
+tags: ["Greece", "Travel", "Travel-With-Sister"]
 ---
 
 Yamas! This is a travelogue of my trip to Athens, Greece on 4th of September 2025 to 6th of September 2025. I went with my sister, and our main purpose of this visit was to cover archaeological sites and museums. I now reminisce the trip and type down my experiences here:

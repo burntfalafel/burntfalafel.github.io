@@ -1,3 +1,10 @@
+---
+title: "Prague 25"
+date: 2025-03-10 14:00:00 +0000
+categories: ["Travel"]
+tags: ["Czech-Republic", "Travel", "Travel-Solo"]
+---
+
 Hello fellow travellers! I present to you my travelogue of Prague, Czech Republic - a wonderful city with a rich history and vibrant culture. Let's dive into the details of my trip!
 
 ## Day 1 - Arrival in Prague, Prague Castle, St. Vitus Cathedral
@@ -31,40 +38,33 @@ It looked pretty grim in my opinion. I couldn't imagine being locked up in such 
 
 After all this I decided to take a walk to the nearby Queen Anne's Summer Palace, which is a beautiful Renaissance building located within the castle complex. The palace was built in the 16th century as a summer residence for Queen Anne of Bohemia, and it features stunning architecture and beautiful gardens. You couldn't enter in - but the gardens were nice to walk around in.
 
-After all this I decided to grab some grub before I walk to the next highlight of the day - The Franz Kafka Museum. I ate at a fast-food joint called Bagguette - which was a small chain of sandwich shops in Prague. I had a chicken sandwich with some fries and a drink, which was super crap. Just reminded how much I do not like the taste of
+After all this I decided to grab some grub before I walk to the next highlight of the day - The Franz Kafka Museum. I ate at a fast-food joint called Bagguette - which was a small chain of sandwich shops in Prague. I had a chicken sandwich with some fries and a drink, which was super crap. It had no flavour at all and had way too much chicken. Definitely not to my liking. But that being said, it seemed to be most popular joint for tourists around that area.
 
-franz’s letter to his father
+After lunch, I made my way to the Franz Kafka Museum, which is dedicated to the life and works of the famous Czech writer Franz Kafka. The museum is located in a beautiful building near the Charles Bridge, and it features a variety of exhibits and interactive displays that explore Kafka's life and literary legacy. The main (and actually only) exhibit of the museum is a collection of Kafka's letter to his father, which provides insight into Kafka's complex relationship with his father and his struggles with identity and self-expression. The museum also features the whole life journey of Kafka, from his childhood to his literary career. There also was a lot of relationships according to his diary - like his last legs was in a relationship with herbee lady. He also wanted to go to emigrate to Palestine, Israel and had started to learn Herbew. But his worsening tuberculosis condition prevented him from doing so after he which died. Made me realise how fragile life is. But that was it for that museum - pretty small and can be done in like 30 minutes tops.
 
-I feel everything is soo unsteady, that only thing is hand and his mouth He is sure of
+After the museum, I decided to walk along the Vltava River, all the way up to the Prague Metronome. Prague I found is a beautiful city, with flowers everywhere (yes even roses!)! The Prague Metronome is a giant metronome located in Letná Park, which offers stunning views of the city. The metronome was built in 1991, and it stands 75 feet tall. The metronome is a popular spot for locals and tourists alike, and it offers a unique perspective of the city. However there was a lot of graffiti around the area - indicating that this spot is popular with the local skateboarders. The view from there though was terrific, with a panoramic view of the city and the Vltava River winding its way through the cityscape.
 
-A lotta relationships according to his diary
+I finally then made my way back to the city centre, and walked along the Charles Bridge, which is one of the most iconic landmarks in Prague. The bridge is a beautiful example of Gothic architecture, with stunning statues and intricate details. The bridge was bustling with tourists and street performers, creating a lively atmosphere. I took my time walking across the bridge, admiring the views of the river and the city skyline. They're like 20+ statues on that bridge - almost half of them have been replaced with replicas due to weathering and the stone material used. On each side of the bridge, there are towers that offer panoramic views of the city - I didn't bother going up there though, as it was (a) paid (b) the same view as the metronome imo.
 
-Last legs was in a relationship with herbee lady
+I then made my way through to the Old Town square, back to my Airbnb. I grabbed some dinner from a nearby KFC (trust me, the resturants food looked really crap lol). On the way though, I did grab the famous beer - Staropramen. I had the dark lager version, which was quite nice. It most definitely had a richer flavour compared to the regular lagers beers I've ever had before. And that was my first day in Prague!
 
-Wanted to go to Israel
+## Day 2 - Old Town Square, National Museum
 
-Stayed away from home last sec
+I firstly started of my day with a hearty brunch at a nearby cafe near my Airbnb called <NAMEBRUNCH>. The cafe had a very cozy atmosphere, with rustic decor and comfortable seating. I ordered a classic Turkish breakfast, which I'll be honest was the first decent meal I've had in Prague so far. Also their restaurant culture is quite different from what I'm used to in the UK. The waitstaff here are not as attentive, and you have to go up to the counter to place your order and pay. But after that, I decided to tackle first the National Museum, which is the closest major attraction from my Airbnb.
+However, when I got there - I was given a ticket later time slot, giving me some time to kill. So I decided first to visit the nearby main Train station. Other than the homeless people loitering around the area, the architecture of the station was spot-on with the Deus Ex vibe again. I've attached a pic below for reference.
 
-Can’t understand their resaurant culture
+I then walked around Wenceslas Square a bit, bought a tiny bottle of Becherovka - a famous Czech herbal liqueur. Visited a bookstore which had everything written in Czech. There was also this section dedicated to Witcher books - unfortunately all in Czech. Though the author Andrzej Sapkowski is Polish, his books are super popular in Czech republic too.
 
-Really good looking guys. decent english
+After this long loiter - I headed back to the National Museum, where I was allowed in. Their locker room system was quite neat - and I was get my bag off my shoulders xD. The museum itself was beautiful, with stunning interiors. I first visited the temporary exhibtion on the ground floor, 100 treasures, 100 stories. It showcased some amazing artefcats from National Palace Museum, Taiwan. Some of the highlights included jade carvings, ancient scrolls and ceramics. The scrolls were particularly impressive, which showcased intricate calligraphy and detailed illustrations of how scholars and literati lived in ancient China. There was this one scroll which depicted a whole landscape painting of mountains, rivers and villages. The level of detail was astounding, with tiny figures of people and animals scattered throughout the scene. It really gave me a sense of the beauty and complexity of traditional Chinese art.
+Also there was this book which contained a short story of a devoted son who tried to catch fish in the freezing cold for his step-mother (Very moving, read it up online, "The Filial Son Fish" by Lin Daiyu). The story was a reminder of filial piety and the importance of family in Chinese culture.
+After this exhibition - I decided to actual visit the main museum itself. The main museum had a vast collection from natural history to art and culture. Some of the highlights included dinosaur skeletons, minerals and gemstones, and a collection of traditional Czech folk art. There was also a section dedicated to the history of Prague, which showcased artefacts and exhibits from the city's rich past. Exhibits trace early Celtic and Slavic tribes, the Great Moravian Empire (9th century), and the rise of the Bohemian Kingdom under the Přemyslid and Luxembourg dynasties, with Charles IV making Prague a cultural hub of Europe. The museum also highlights Hussite reforms, Habsburg rule, the Czech National Revival in the 19th century, and the creation of Czechoslovakia in 1918.
+It concludes with 20th-century upheavals — Nazi occupation, Communist era, and the peaceful Velvet Revolution that led to today’s Czech Republic.
 
-Flowers everyehere
+The other bits of the museum were more targeted to kids - like taxidermy animals, dinosaur bones and minerals. Overall though - I did enjoy my time at the museum, and would recommend it to anyone visiting Prague!
 
-Builders
+After this was just a walk to the Old Town square again, this time I did stop and visit the various attractions. The Astronomical Clock, Church of Our Lady before Týn and the Mariánský sloup. These were all beautiful examples of Gothic and Baroque architecture, with intricate details and stunning designs and all free to visit!
 
-Traffic
+Some random observations about Prague though: The guys here are really good looking, with decent English skills. Traffic seemed a bit chaotic, where the traffic lights didn't seem to obeyed? Yet pedestrians are given priority when crossing the road, and seemed perfectly safe. I perhaps need to study their traffic system to understand it xD.
+There was also this Bata flagship store on Wenceslas Square, which apparently is a Czech company! Didn't know that before!
 
-Do you feel cities with organised mafia - the cities feel safer
-
-Cathartt bags
-
-museum
-
-Bata
-
-    hasburg monarchy
-    German, bohemian split 1867
-    Paper etchings
-
-
+After all this I walked back to Malá Strana (which looked architecturally similar to Deus Ex maps!) and then took the metro back to the airport. That summarised my trip to Prague!

@@ -14,17 +14,35 @@ However, due to severe delays and tube-strike in London, my sister took ages to 
 After this very uneventful wait, my sister arrived by around 2pm, and we went to check-in and get our boarding passes. It was a Ryanair flight, so it was something I did not factor in - check-in :'(. I (and my sister) did not check-in and we had to pay 55£ extra for getting the boarding pass. Yeah - Ryanair sure knows how to milk money from you :(. Lesson learnt - always check-in online 24 hours before the flight!
 
 And then the flight was delayed by 1 hour, before we finally boarded the plane and reached Athens at around 00:00 midnight. Total flight time is 3h 55m - but with the additonal delay of 1h in the plane and my long waiting in the airport - another 4 hours and I am sure, I would've beaten the time it takes me to fly to Mumbai from London. Of course, doing my research - all nearby takeaways to our Airbnb were closed, so we had to settle for some airport food. My sister and I bought a Mediterranean sandwich each (had some olive paste, which was insanely good. No feta cheese btw). We also got some Lays Oregano crisps from the little airport cafe and next to our Airbnb was this late night shop selling all kind of drinks and crisps (along with vape, tobacco, etc.). Our Airbnb was located in Plaka, and the streets were littered with quite a few of these shops. Of course, a bunch of teenagers and (homeless) looking men and women were around such shops, chilling after probably a late night party session xD. A pic of how our food looked is below!
+Our late night airport food!
+<p float="left">
+<iframe src="https://drive.google.com/file/d/18peYof7JcE1-rZH8J6j_gqSr0MZEu03m/preview" width="400" height="400" allow="autoplay"></iframe>
+<iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d196.56453903292677!2d23.730509649137066!3d37.97636794177439!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x14a1bd4b0797d1bf%3A0xdcda10661dab6940!2sA%26N%20Athens%20Luxury%20Apartments%20-%20Ermou!5e0!3m2!1sen!2sin!4v1761639540145!5m2!1sen!2sin" width="400" height="400" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
+</p>
 
 And with this all we both finally crashed in our Airbnb, which was a lovely place in Plaka and drifter off to sleep, ending our long trip to Athens from Stansted!
 
 ## Day 1 - Acropolis and Acropolis museum
 We got up at around 8:00 or so - and in broad daylight, I discovered how nicely the Airbnb was done up! Actually it's a bit surprising to see how early the sun rises here. They gave us some coffee capsules (and the espresso machine ofc) which looked pretty cheap - but the coffee tasted way better than the usual Nespresso capsules I get in the UK. We had our coffee and then headed out to Acropolis in the hopes of beating the early morning rush. Since our Airbnb was located near Montrasiki square and we had to go south to where the Acropolis site was, we had to take a quick walk through Plaka. It is very much like the central part of the Athens, with a lot of touristy shops (more to come in the later part of the blog). Though a lot of shops were closed, so rather than staring at shutters - we decided to trudge on. We just came across this really nice looking church, had a quick look in it!
 
+<div class="slideshow">
+  <iframe src="https://docs.google.com/presentation/d/e/2PACX-1vRDpx5-8I57PlSOvHox8pQtiX3fBW5yOZX9uqI2pYXthPJWrPMHm_2oZBZZZpD9_pkkOlBbcAIGa32w/pubembed?start=true&loop=true&delayms=3000"
+          frameborder="0" width="800" height="299" allowfullscreen mozallowfullscreen webkitallowfullscreen></iframe>
+</div>
+
+<style>
+.slideshow iframe {
+  display: block;
+  margin: auto;
+  border: none;
+}
+</style>
+
 We then grabbed a pastry from nearby, it was called Babka and was very sweet and nice. Think of it like a heavy brioche with a lotta cinnamon. We then continued climbing up the stairs toward Acropolis.
 
 <p float="left">
-<iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d3145.0751365736046!2d23.729847499999998!3d37.975375799999995!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x14a1bd3d044dcde7%3A0x89da7c340968d932!2sHoly%20Metropolitan%20Church%20of%20the%20Annunciation%20to%20the%20Virgin%20Mary!5e0!3m2!1sen!2suk!4v1757519802100!5m2!1sen!2suk" width="300" height="450" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
-    <iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d3145.1023664663808!2d23.7296362!3d37.9747403!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x14a1bda92bd10075%3A0x98d189c15856155e!2sThe%20Zillers%20Pastry%20Bar!5e0!3m2!1sen!2suk!4v1757519845915!5m2!1sen!2suk" width="300" height="450" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
+<iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d3145.0751365736046!2d23.729847499999998!3d37.975375799999995!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x14a1bd3d044dcde7%3A0x89da7c340968d932!2sHoly%20Metropolitan%20Church%20of%20the%20Annunciation%20to%20the%20Virgin%20Mary!5e0!3m2!1sen!2suk!4v1757519802100!5m2!1sen!2suk" width="400" height="450" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
+    <iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d3145.1023664663808!2d23.7296362!3d37.9747403!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x14a1bda92bd10075%3A0x98d189c15856155e!2sThe%20Zillers%20Pastry%20Bar!5e0!3m2!1sen!2suk!4v1757519845915!5m2!1sen!2suk" width="400" height="450" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
 </p>
 
 We were a bit breathless when we reached the site as it was a steep climb (the stairs helped, but still :)). Once we reached the ticket booth, there was this massive queue of a lot of tourists waiting to get in. Turns out all the tourguides pre-book all the tickets from 8AM to 12 noon. Like there was no getting the tickets even if you booked the tickets early on :'(! So the only option was to buy the tickets for the 1PM slot. Realising we had time to kill, we decided to walk up a closeby hilltop - Filopappou hill. The walk was pretty nice, with a lot of greenery and some nice views of Athens.

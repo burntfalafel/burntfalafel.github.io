@@ -46,29 +46,40 @@ We then grabbed a pastry from nearby, it was called Babka and was very sweet and
 </p>
 
 We were a bit breathless when we reached the site as it was a steep climb (the stairs helped, but still :)). Once we reached the ticket booth, there was this massive queue of a lot of tourists waiting to get in. Turns out all the tourguides pre-book all the tickets from 8AM to 12 noon. Like there was no getting the tickets even if you booked the tickets early on :'(! So the only option was to buy the tickets for the 1PM slot. Realising we had time to kill, we decided to walk up a closeby hilltop - Filopappou hill. The walk was pretty nice, with a lot of greenery and some nice views of Athens.
-https://maps.app.goo.gl/66kKio9re8hRgeQF9?g_st=ipc
-[https://maps.app.goo.gl/66kKio9re8hRgeQF9?g_st=ipc]
+<p float="left">
+<iframe src="https://drive.google.com/file/d/1Vk-jmFGWOIdrJ5OJND5BT6zSJTTZZBXK/preview" width="400" height="400" allow="autoplay"></iframe>
+<iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d3145.204118430319!2d23.723232199999995!3d37.972365499999995!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x14a1bd1972fd320f%3A0x673dac60a01f1e34!2sAreopagus%20Hill!5e0!3m2!1sen!2sin!4v1761640189878!5m2!1sen!2sin" width="400" height="400" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
+</p>
 
 
 Also the view of Acropolis and Lycabettus hill from here was pretty scenic! After spending some time clicking pics and admiring the view, we walked down to the Plaka area again, to do some shopping (sister was forcing me too :P). While at it, we walked inside Montrasiki flea market area - had a shit load of touristy stuff and curious. They were pretty pricey! And the 1 thing that being in India has taught me is to spot the appropriately priced markets - versus the ones stealing. This was definitely daylight robbery xD.
 We also walked a bit north to find the meat market
 
-https://maps.app.goo.gl/hP3wN9K1TYFKhis19?g_st=ipc
-[https://maps.app.goo.gl/hP3wN9K1TYFKhis19?g_st=ipc]
+<p float="center">
+<iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d3144.8586205207343!2d23.7276638!3d37.980428599999996!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x14a1bd2351ec149b%3A0x3031466a9b92442d!2sVarvakios%20Central%20Municipal%20Market!5e0!3m2!1sen!2sin!4v1761640268953!5m2!1sen!2sin" width="600" height="450" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
+</p>
 
 Starving as we were, we decided to get a quick brunch at a local cafe which didn't have any good reviews (we didn't know!).
 
-https://maps.app.goo.gl/fXgrju8qMv1wfuGw8?g_st=ipc
-[https://maps.app.goo.gl/fXgrju8qMv1wfuGw8?g_st=ipc]
+<p float="center">
+<iframe src="https://drive.google.com/file/d/17QPnO0xHBY7KDWOy8jkVha0Mw2ox5Hzn/preview" width="400" height="400" allow="autoplay"></iframe>
+<iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d3145.012409940079!2d23.7260527!3d37.9768397!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x14a1bd0035d6705d%3A0x2ca80b475f6b9aaa!2sAthens%20Station%20caf%C3%A9!5e0!3m2!1sen!2sin!4v1761640347401!5m2!1sen!2sin" width="400" height="400" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
+</p>
 
 We had Fredichinno (the chocolatey drink), Frappe (thick Greek coffee like), spinach pie and another Mediterranean sandwich. The sandwich was different one from the one we grabbed from the airport as this had feta cheese. But the sandwich was mid, I'll be honest compared to pie we had! We walked by Haidans library, which looked pretty broken imo. Not worth a visit, but you can imagine how it looked in its prime (a few pillars were standing as shown in the pic below).
 
-https://maps.app.goo.gl/fLxnd6ZTBq1sQCMT8?g_st=ipc
-[https://maps.app.goo.gl/fLxnd6ZTBq1sQCMT8?g_st=ipc]
+<p float="center">
+<iframe src="https://drive.google.com/file/d/14yH6pr02bcE_Dv6HoctwGbMsgDp14Uit/preview" width="400" height="400" allow="autoplay"></iframe>
+<iframe src="https://drive.google.com/file/d/1rnBR7nQ-Vw59UiVt69sVwra_jMoixC4f/preview" width="400" height="400" allow="autoplay"></iframe>
+</p>
 
 Sister on the way decided to buy some lovely tote bags of Greece we saw on the way. Being the weirdo she is - she went for the back-carry bag instead. I got a fridge magnet which said Pythagoras (lol) and the headed to Acropolis.
 
 Once we reached the Acropolis site (yes we had to climb a bit again), we managed to get in pretty quickly. Here, you were sort of free to roam around the site, with a lot of signboards explaining the history of each monument. The only problem was it hot, like roasting hot. After clicking some pics, we decided to go through the northern entrance, which looked like the way in. We walked into the Propylaea to see  the old temple Athena, Parthenon and Erechtheion. The Parthenon had massive cranes and scaffolding around it, as it was being restored. The temple of Athena was pretty much in ruins, with only a few pillars standing. The Erechtheion was in a better state, with the famous Caryatids a famous group of six female figures that serve as columns, supporting the roof of the temple's south porch. There was also observation platform with a massive Greece flag from which you could see the whole of Athens. Strange to imagine that this whole area was once a dense forest, and now it is a sprawling city! Acropolis was the citadel of ancient Athens, and the Parthenon was built in 447 BC. It was dedicated to the goddess Athena, whom the people of Athens considered their patroness and was said to have many springs and beautiful statues. You can feel the history and the glory of ancient Greece here, no question about that.
+<p float="center">
+<iframe src="https://drive.google.com/file/d/1gc7s-wZltVw26BkADHTWSzHyAmS16OYq/preview" width="400" height="400" allow="autoplay"></iframe>
+<iframe src="https://drive.google.com/file/d/1pV74ud9w3aPJlQt3hYWMW1O3tTsJLwX2/preview" width="400" height="400" allow="autoplay"></iframe>
+</p>
 
 Then way down, sister threw fit and we could not see the northern slope which is a little way off when you coming down. But looks nothing I had missed. And that was Acropolis for you!
 The tickets also covered the southern slopes, but we didn't know about it until after the trip to the museum :(. That slope did have some really interesting stuff, but again you cannot go in - just see them from the outside. So we just walked down to the Plaka area again, and this time we went to a shop selling leather sandals.
@@ -91,10 +102,26 @@ Persians destroyed a lot of the sculptures and temples in Athens, and the Parthe
 
 There was this also this underground floor which had a lot of ruins of houses and streets from the ancient Athens (along with some of their daily artifacts). It was pretty impressive to see how the ancient Athenians lived! I think middle-class there had a lot of perks, like running water and all.
 
+<div class="slideshow">
+<iframe src="https://docs.google.com/presentation/d/e/2PACX-1vSjMORwLq9W1SdNIiV8k9nGR7ZMQy4sNmDqbAJdiGuxP-kVIFM9O5AwGunYcXGpWmgI3CRzkOTeCTEb/pubembed?start=true&loop=true&delayms=3000" frameborder="0" width="480" height="299" allowfullscreen="true" mozallowfullscreen="true" webkitallowfullscreen="true"></iframe>
+</div>
+
+<style>
+.slideshow iframe {
+  display: block;
+  margin: auto;
+  border: none;
+}
+</style>
+
 With the long tour of the museum done, we were pretty hungry. So we initially decided to go to the Psaras tarven, which had some really good reviews from redditors. But on the way we stumbled upon this lovely restaurant which had a very long queue (and it was only 7:00pm!). So we decided to give it a try, the wait was around 20 minutes - but my God the food was heavenly. A quick note to future travellers - the meal for two actually means a meal for two.
 
-https://maps.app.goo.gl/QLBxJ44dfzavujJw6?g_st=ipc
-[https://maps.app.goo.gl/QLBxJ44dfzavujJw6?g_st=ipc]
+<p float="center">
+<iframe src="https://drive.google.com/file/d/1wa8L2xQfstBZyTnxKsDw_N6fOf6RnbMN/preview" width="400" height="400" allow="autoplay"></iframe>
+<iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d3145.200146657372!2d23.7293566!3d37.9724582!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x14a1bd17c3f4538b%3A0x78ab8721a5e8faa7!2sRestaurant%20Scholarhio!5e0!3m2!1sen!2sin!4v1761652254790!5m2!1sen!2sin" width="400" height="400" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
+</p>
+(That picture does not do justice to the food we had, as we had already polished half of it before clicking)
+
 
 Ordered a meal for two and some lamb chops which we couldn’t finish :(. Like I said - Greeks eat a lot! With all this then we decided to walk back to our Airbnb, and crashed for the day. It was a long day, but a very fulfilling one!
 
@@ -142,12 +169,39 @@ Highlights of the museum for me were:
 
 There also was not much on the civilisation Crete.
 
+<div class="slideshow">
+<iframe src="https://docs.google.com/presentation/d/e/2PACX-1vS-TobbRmU7BVAoez3zGIRynbbarNVMF78GTgvGEsOdr0xU6_eVVMfQF4vWTFRUlNdgK3VnkJLbDgxb/pubembed?start=true&loop=true&delayms=3000" frameborder="0" width="480" height="299" allowfullscreen="true" mozallowfullscreen="true" webkitallowfullscreen="true"></iframe>
+</div>
+
+<style>
+.slideshow iframe {
+  display: block;
+  margin: auto;
+  border: none;
+}
+</style>
+
 We then trudged our way to the Ancient Agora, which required us to take the metro and then walk a bit. Here, we saw the Temple of Hephaestus, which is one of the best-preserved ancient Greek temples. The temple was built in the 5th century BC, and is dedicated to Hephaestus, the god of fire and metalworking. The temple is located on a hill overlooking the Agora, and has a lot of nice views of Athens. Also saw the a lot of buildings in ruins, like the Stoa of Attalos, which was a covered walkway that was used for shopping and socialising. The Agora was the centre of ancient Athens, and was the place where people would gather to discuss politics, philosophy, and other topics. This was razed by the Persians in 480 BC, and was rebuilt in the 5th century BC. After which it was used until the 6th century AD, when it was abandoned.
 Romans then came and built their own structures here, like the Odeon of Agrippa, which was a theatre that was used for musical performances and other events. The Odeon was built in the 1st century BC, and was one of the largest theatres in ancient Athens. This was also destroyed in an earthquake in the 3rd century AD, and was never rebuilt.
 
 You can actually see a lot of the ruins from the Roman period, like the Tower of the Winds, which is an octagonal tower that was used as a clock and a weather vane. The tower was built in the 2nd century BC, and is one of the best-preserved examples of ancient Greek architecture. I however couldn't go inside.  I also saw the Church of the Holy Apostles, which is a Byzantine church that was built in the 10th century AD.
+<p float="center">
+<iframe src="https://drive.google.com/file/d/15zBPXUdV1QaXwH1sqYxBgjcgTDbCOJQM/preview" width="800" height="650" allow="autoplay"></iframe>
+</p>
 
-By this time however, both sister and me were exhausted. So we decided to head for a quick drink and snack at a nearby resturant. Sycophant was the name of the place - where I had Freddo Cappuccino (my favourite drink, third time having it in Greece btw). We had this some with fries and relaxed to enjoy the evening breeze. For the dinner-dinner, we just grabbed a takeaway from a nearby place called Falafellas and had it in our AirBnb. It was super good.
+By this time however, both sister and me were exhausted. So we decided to head for a quick drink and snack at a nearby resturant. Sycophant was the name of the place - where I had Freddo Cappuccino (my favourite drink, third time having it in Greece btw). We had this some with fries and relaxed to enjoy the evening breeze.
+<p float="center">
+<iframe src="https://drive.google.com/file/d/1L_Be4wPYxWqvj9dHPae2QS-zx_5eddNf/preview" width="400" height="400" allow="autoplay"></iframe>
+<iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d196.56674205486317!2d23.719214502718547!3d37.97554532094435!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x14a1bd1f62e5f439%3A0x9705795ec80eed30!2sVestiario%20Thissio_Cafe-Bar-Restaurant!5e0!3m2!1sen!2sin!4v1761654995029!5m2!1sen!2sin" width="400" height="400" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
+</p>
+
+For the dinner-dinner, we just grabbed a takeaway from a nearby place called Falafellas and had it in our AirBnb. It was super good.
+
+<p float="center">
+<iframe src="https://drive.google.com/file/d/178Ki2TsEqIAUF3-Us9epuyarVUKsxeCC/preview" width="400" height="400" allow="autoplay"></iframe>
+<iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d3144.944530563752!2d23.72304789219407!3d37.97842379957086!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x14a1bd3ca9053429%3A0x1d7319017d4252c!2sFalafellas%20(Athens)!5e0!3m2!1sen!2sin!4v1761655085561!5m2!1sen!2sin" width="400" height="400" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
+</p>
+
 
 ## Day 3 - National gardens and poor attempt in the beach
 
@@ -155,8 +209,20 @@ Went to the national gardens. Saw a lotta parrots and some birds locked in cages
 We also saw the stadium of Panathenaic, which is the only stadium in the world built entirely of marble. The stadium was built in the 4th century BC, and was used for the Panathenaic Games, which were held in honour of Athena. The stadium is located on a hill overlooking the city, and has a lot of nice views of Athens. We just saw this from outside as it didn't warrant a visit in this heat :'(.
 
 Here, my sister decided to split ways - where she continues to shop in Plaka and I go see the beach. I took the bus to the beach, which took around 40 minutes. The beach area is pretty toursity - and you have to have your swimming trunks otheriwse no point (I didn't have them lol). Before this we had our lunch at a place called <FORGOT> where I soulavi and my sister had a gyros. Both were pretty mid imo. Maybe it was order which sucked.
+<p float="center">
+<iframe src="https://drive.google.com/file/d/1CXxw9WSoix07Q1nOULlhJovvJtbi-0-0/preview" width="400" height="400" allow="autoplay"></iframe>
+<iframe src="https://drive.google.com/file/d/1WfC2y7g6A3iFIs7B796-7fcLo8o0q_yj/preview" width="400" height="400" allow="autoplay"></iframe>
+</p>
+(Coffee from that cafe chain is epic btw)
 
 After this we roamed around Plaka a bit, before he headed for dinner at Atlantikos - which is a very popular seafood restaurant in Plaka with very good prices.
+<p float="center">
+<iframe src="https://drive.google.com/file/d/1QRld4TtSPkE_XxI0VZV_2QZ9o6djBrRi/preview" width="400" height="400" allow="autoplay"></iframe>
+<iframe src="https://drive.google.com/file/d/1j6_tLnR9iVulSFObwIObwBFGx-lm6MIJ/preview" width="400" height="400" allow="autoplay"></iframe>
+</p>
+<p float="center">
+<iframe src="https://drive.google.com/file/d/1Xs69hj0NBHUsCuauCisz3TGDeD4QU6Vf/preview" width="400" height="400" allow="autoplay"></iframe>
+<iframe src="https://drive.google.com/file/d/11zHiMDImZ0D6YCZ7rWsBiu9PkV2daobA/preview" width="400" height="400" allow="autoplay"></iframe>
+</p>
 
-
-And that summarises our trip to Athens. Overall, it was a very fulfilling trip, and I would definitely recommend it to anyone who is interested in history and archaeology. The food is amazing, and the weather can be a little hot. I would definitely go back to Athens again!
+And that summarises our trip to Athens. Overall, it was a very fulfilling trip, and I would definitely recommend it to anyone who is interested in history and archaeology. The food is amazing, and the weather can be a little hot. I would definitely go back to Athens again! Until then - Yassas!

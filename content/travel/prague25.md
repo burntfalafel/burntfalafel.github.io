@@ -38,7 +38,7 @@ After exploring the main castle, I headed to St. Vitus Cathedral, which was this
 The rest of the main circuit was pretty boring - St. George's Basilica, which was very meh and the Golden Lane, which was a row of small colourful houses that were once home to castle guards and goldsmiths. The houses have been converted into shops and museums, showcasing the history of the area.
 
 <div class="slideshow">
-<iframe src="https://docs.google.com/presentation/d/e/2PACX-1vQZF5DOSJ2_pBd9UnzJuqOLZDdKIbXk86QQgxSc7arj2_W6Jr8cL9A-w-_Cl2j3Z8e_JvcjQsjeFCHd/pubembed?start=true&loop=true&delayms=3000" frameborder="0" width="960" height="569" allowfullscreen="true" mozallowfullscreen="true" webkitallowfullscreen="true"></iframe>
+<iframe src="https://docs.google.com/presentation/d/e/2PACX-1vQZF5DOSJ2_pBd9UnzJuqOLZDdKIbXk86QQgxSc7arj2_W6Jr8cL9A-w-_Cl2j3Z8e_JvcjQsjeFCHd/pubembed?start=true&loop=true&delayms=3000" frameborder="0" width="800" height="299" allowfullscreen="true" mozallowfullscreen="true" webkitallowfullscreen="true"></iframe>
 </div>
 
 <style>
@@ -53,7 +53,7 @@ The rest of the main circuit was pretty boring - St. George's Basilica, which wa
 However, there was this one spot which caught my attention - the Daliborka Tower. This tower was used as a prison in the past, and it had a dark history. The tower was named after Dalibor of Kozojedy, a knight who was imprisoned there in the 15th century. The tower has a unique design, with a spiral staircase that leads to the cellar. The cell was cramped and dark, with a small window that provided little light. It was a sobering reminder of the harsh conditions prisoners faced in the past. There is also this hole on the floor of the tower, which was used to lower prisoners into the cellar. The hole is now covered with a glass panel, allowing visitors to see the dark and damp conditions below.
 It looked pretty grim in my opinion. I couldn't imagine being locked up in such a place for even a hour!
 <div class="slideshow">
-<iframe src="https://docs.google.com/presentation/d/e/2PACX-1vSDR0bLkmPuGFZN5yumC-lygMexHtqlSFCvNrx826EzgSC6hMsEXK-Iq4ypPgVR9ZYR0oRQ-n6H12sN/pubembed?start=true&loop=true&delayms=3000" frameborder="0" width="960" height="569" allowfullscreen="true" mozallowfullscreen="true" webkitallowfullscreen="true"></iframe>
+<iframe src="https://docs.google.com/presentation/d/e/2PACX-1vSDR0bLkmPuGFZN5yumC-lygMexHtqlSFCvNrx826EzgSC6hMsEXK-Iq4ypPgVR9ZYR0oRQ-n6H12sN/pubembed?start=true&loop=true&delayms=3000" frameborder="0" width="800" height="299" allowfullscreen="true" mozallowfullscreen="true" webkitallowfullscreen="true"></iframe>
 </div>
 
 <style>
@@ -66,7 +66,7 @@ It looked pretty grim in my opinion. I couldn't imagine being locked up in such 
 
 After all this I decided to take a walk to the nearby Queen Anne's Summer Palace, which is a beautiful Renaissance building located within the castle complex. The palace was built in the 16th century as a summer residence for Queen Anne of Bohemia, and it features stunning architecture and beautiful gardens. You couldn't enter in - but the gardens were nice to walk around in.
 <p float="center">
-<iframe src="https://drive.google.com/file/d/I1JIb4P9Oo8fCQc06vQ7E-MaT9PWFLt/preview" width="400" height="400" allow="autoplay"></iframe>
+<iframe src="https://drive.google.com/file/d/18I1JIb4P9Oo8fCQc06vQ7E-MaT9PWFLt/preview" width="400" height="400" allow="autoplay"></iframe>
 <iframe src="https://drive.google.com/file/d/1yY2EpmGgSwhS7F57212OJFbvazLR1zax/preview" width="400" height="400" allow="autoplay"></iframe>
 </p>
 
@@ -120,7 +120,7 @@ Also there was this book which contained a short story of a devoted son who trie
 After this exhibition - I decided to actual visit the main museum itself. The main museum had a vast collection from natural history to art and culture. Some of the highlights included dinosaur skeletons, minerals and gemstones, and a collection of traditional Czech folk art. There was also a section dedicated to the history of Prague, which showcased artefacts and exhibits from the city's rich past. Exhibits trace early Celtic and Slavic tribes, the Great Moravian Empire (9th century), and the rise of the Bohemian Kingdom under the Přemyslid and Luxembourg dynasties, with Charles IV making Prague a cultural hub of Europe. The museum also highlights Hussite reforms, Habsburg rule, the Czech National Revival in the 19th century, and the creation of Czechoslovakia in 1918.
 It concludes with 20th-century upheavals — Nazi occupation, Communist era, and the peaceful Velvet Revolution that led to today’s Czech Republic.
 <div class="slideshow">
-<iframe src="https://docs.google.com/presentation/d/e/2PACX-1vTuFcnro9TKHLC9bPA3UUROWTm78cRCgoYf-V2lm3UqYmj8egi5tlQ_RwIHDeGReql49VHLR5RU3ciz/pubembed?start=true&loop=true&delayms=3000" frameborder="0" width="480" height="299" allowfullscreen="true" mozallowfullscreen="true" webkitallowfullscreen="true"></iframe>
+<iframe src="https://docs.google.com/presentation/d/e/2PACX-1vTuFcnro9TKHLC9bPA3UUROWTm78cRCgoYf-V2lm3UqYmj8egi5tlQ_RwIHDeGReql49VHLR5RU3ciz/pubembed?start=true&loop=true&delayms=3000" frameborder="0" width="800" height="299" allowfullscreen="true" mozallowfullscreen="true" webkitallowfullscreen="true"></iframe>
 </div>
 
 The other bits of the museum were more targeted to kids - like taxidermy animals, dinosaur bones and minerals. Overall though - I did enjoy my time at the museum, and would recommend it to anyone visiting Prague!
